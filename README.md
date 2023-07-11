@@ -1,1 +1,1 @@
-# wallpap_privacy_policy
+# WallPap Privacy Policy
